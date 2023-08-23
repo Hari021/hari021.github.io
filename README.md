@@ -1,1 +1,0 @@
-# harigokul.github.io
